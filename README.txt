@@ -1,0 +1,1 @@
+ļoti labi stradaju bet laika truka jo nesapratu isti uzdoto
